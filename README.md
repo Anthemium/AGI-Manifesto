@@ -1,6 +1,6 @@
 ### AGI Manifesto: From Topology to Knowledge
 
-*Date:* May 2, 2025
+*Date:* May 3, 2025
 
 *Location:* Moscow
 
