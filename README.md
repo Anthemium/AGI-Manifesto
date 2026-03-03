@@ -58,11 +58,3 @@ Roman Kuznetsov
 Moscow, May 3, 2025
 
 [https://t.me/aiminister](https://t.me/aiminister)
-
-[https://x.com/AGIminister](https://x.com/AGIminister)
-
-https://anthemium.com 
-
-
-**Uni-versity for Artificial Intelligence Development**
-[https://agiuni.ru](https://agiuni.ru)
